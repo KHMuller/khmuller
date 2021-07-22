@@ -6,5 +6,5 @@ Thanks for stepping by. I’m @KHMuller. To reach me send an email to karlheinz 
 - [simaec.net](https://www.simaec.net "Web Publishing")
 - [muuuh.com](https://muuuh.com "Wildlife Tales")
 - [faunaflora.photography](https://faunaflora.photography "Fauna &amp; Flora Photography")
-- [discoverymexico.com](https://www.discoverymexico.com "Discovery Mexico")
+- [discoverymexico.com.mx](https://www.discoverymexico.com.mx "Discovery Mexico")
 
